@@ -67,6 +67,8 @@ out of my leauge
 out of my leauge
 (out of my leauge)
 
+ADD MELODY TO FINAL PUNCH UP OF THE SONG - RISING TENSION
+
 out of my leauge brought into light
 what do i see when dawn's too bright
 bonded with mist sensing the blind
