@@ -45,8 +45,8 @@ it's a disguise forming around the identities
 splendid morbidity vibes within my entity
 roaming the mind, forging new paths
 for eternity dies folded inside my arms (delete melody from this part)
-folded inside my arms
-folded inside my arms
+folded inside my arms (+ melody)
+folded inside my arms (+ melody)
 
 coz it's the feeble tease of the moments
 dubious presents from murderous kind                            (marvellous kind)
