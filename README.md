@@ -44,9 +44,11 @@ tellin' me lies
 it's a disguise forming around the identities
 splendid morbidity vibes within my entity
 roaming the mind, forging new paths
-for eternity dies folded inside my arms (delete melody from this part)
-folded inside my arms (+ melody)
-folded inside my arms (+ melody)
+for eternity dies folded inside my arms (DELETE MELODY FROM THIS PART)
+folded inside my arms (+ MELODY)
+folded inside my arms (+ MELODY)
+
+PART BELOW: EQ IT BETTER
 
 coz it's the feeble tease of the moments
 dubious presents from murderous kind                            (marvellous kind)
@@ -56,6 +58,8 @@ every time i count up to demise
 making me die, keeping me faint                                 / keeping my faith
 fading the light, dimming the light
 making me die 
+
+/// MAKE A BRIDGE
 
 ya ya ya
 out of my leauge
