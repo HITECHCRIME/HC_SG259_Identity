@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Hitech Crime single transmedia release from the Origin Timeline dealing with the issues of assuming identities in life, dealing with false social bonds and communities offering you one in exchange for acceptance and finally finding your true self on your own path.
+Hitech Crime single transmedia release from the Origin Timeline dealing with the issues of assuming identities in life, dealing with social bonds and communities offering you a false one in exchange for acceptance and finally finding your true self on your own path.
 
 > **Title:** Identity / **Featuring:** MOTHNODE, IMYRGOD
 
