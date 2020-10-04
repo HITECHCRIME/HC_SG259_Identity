@@ -170,3 +170,7 @@ The number 7 is intimately connected with new opportunities, especially ones tha
 **Story Arc:** underground experiments on extreme anomalous human test subjects, schizophrenics or narcissists wearing way too many mental and literal masks. Showcasing the Tear Down procedures to unveil the Inverted Hierophant / The Corruptor within the subjects that reinforces human destructive systems pushing away the true self (core self) and hiding it under many layers of lies and avoidance.
 
 ## Miscellaneous Notes
+
+MOTHNODE_ Identity feat. IMYRGOD (Short Cinematic Preview). Filename: HC_SG259_Identity.mp4
+
+Camera Ops_ MOTHNODE x IMYRGOD
