@@ -44,7 +44,7 @@ tellin' me lies
 it's a disguise forming around the identities
 splendid morbidity vibes within my entity
 roaming the mind, forging new paths
-for eternity dies folded inside my arms 
+for eternity dies folded inside my arms (delete melody from this part)
 folded inside my arms
 folded inside my arms
 
