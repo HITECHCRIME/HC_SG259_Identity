@@ -57,7 +57,7 @@ i can't sense a thing when you fading the light
 every time i count up to demise
 making me die, keeping me faint                                 / keeping my faith
 fading the light, dimming the light
-making me die 
+making me die (DOWNWARDS MELODY)
 
 /// MAKE A BRIDGE
 
