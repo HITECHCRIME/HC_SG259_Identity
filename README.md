@@ -54,6 +54,11 @@ coz it's the feeble tease of the moments
 dubious presents from murderous kind                            (marvellous kind)
 opened for voided that can't tell the difference
 i can't sense a thing when you fading the light 
+
+(REPEAT A FAST STEADY VERSE - REWORK BELOW 2 VERSES)
+opened for voided that can't tell the difference
+i can't sense a thing when you fading the light 
+
 every time i count up to demise
 making me die, keeping me faint                                 / keeping my faith
 fading the light, dimming the light
