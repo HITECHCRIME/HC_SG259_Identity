@@ -48,7 +48,7 @@ for eternity dies folded inside my arms
 folded inside my arms
 folded inside my arms
 
-coz it's the feeble tease of these moments
+coz it's the feeble tease of the moments
 dubious presents from murderous kind                            (marvellous kind)
 opened for voided that can't tell the difference
 i can't sense a thing when you fading the light 
