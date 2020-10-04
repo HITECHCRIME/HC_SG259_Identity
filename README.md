@@ -22,7 +22,6 @@ Hitech Crime single transmedia release from the Origin Timeline dealing with the
 ## Lyrics
 
 ```
-
 ya ya ya
 out of my leauge
 out of my leauge
