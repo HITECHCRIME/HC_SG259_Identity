@@ -14,9 +14,9 @@ Hitech Crime single transmedia release from the Origin Timeline dealing with the
 
 > **Beat:**
 
-> **Narrative Design:**
+> **Narrative Design:** MOTHNODE
 
-> **Music Video Credits:**
+> **Music Video Credits:** MOTHNODE, IMYRGOD
 
 
 ## Lyrics
