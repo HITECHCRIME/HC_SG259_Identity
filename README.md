@@ -1,4 +1,4 @@
-[cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
+![](Screenshot_1.png)
 
 # MOTHNODE_ Identity feat. IMYRGOD
 
