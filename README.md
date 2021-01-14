@@ -180,3 +180,37 @@ The number 7 is intimately connected with new opportunities, especially ones tha
 MOTHNODE_ Identity feat. IMYRGOD (Short Cinematic Preview). Filename: HC_SG259_Identity.mp4
 
 Camera Ops_ MOTHNODE x IMYRGOD
+
+## Instagram Post
+
+/// Hitech Crime Cinematic Narrative Universe Microlabel presents MOTHNODE_ Identity, the 2nd dark futura trap prototype chapter in the Origin Timeline arc series. What's your progress in terms of search of your own identity? Ever struggled with who you consider yourself to be? Let me know in the comments below or send me a DM!
+
+/// We are set to release 3 music video experiments this week. This is the second preview. Make sure to share with your friends and followers who enjoy the dark gritty vibes and vocals - like if you like it and save this post for future reference. As a Director Operative @mothnode and a human being thank you for your continuous support during the development of Hitech Crime Universe. Behind the scenes metabrand and music dev has been going from scratch for almost 3 years now. We are building up to break some new frontiers in transmedia, your presence truly means a world to me! ⁣⁣
+
+⁣⁣⁣⁣⁣⁣/// TARGET_ MOTHNODE_ Identity ⁣⁣(feat. @_imyrgod_)
+
+⁣⁣⁣⁣⁣⁣/// BEAT_ unknwnshi ⁣⁣ 
+
+⁣⁣/// LYRICAL INSIGHT_⁣⁣⁣ ⁣ 
+
+out of my leauge brought into light
+what do i see when dawn's too bright
+bonded with mist sensing the blind
+far too elite i can't align
+
+it's the gentle breeze of anointment
+furious drizzle from treacherous minds
+content commotion i can't pay the obvious
+i can't figure out when you tellin me lies
+
+tellin' me lies
+
+it's a disguise forming around the identities
+splendid morbidity vibes within my entity
+roaming the mind, forging new paths
+for eternity dies folded inside my arms
+folded inside my arms x2
+
+#trapmusic #rapcore #trap #metal #shadow #rap #rapmetal #deathcore #occultist #identity #mindful #darkness #underground #hiphop #cyber #alt #future #trapmetal #struggle #emo #egirl #trashgang #hitechcrime
+
+@mothnode
