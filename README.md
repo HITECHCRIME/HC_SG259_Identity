@@ -22,7 +22,7 @@ Hitech Crime single transmedia release from the Origin Timeline dealing with the
 ## Lyrics
 
 ```
-ya ya ya
+ey ey ey ey ya
 out of my leauge
 out of my leauge
 out of my leauge
@@ -47,9 +47,7 @@ for eternity dies folded inside my arms (DELETE MELODY FROM THIS PART)
 folded inside my arms (+ MELODY)
 folded inside my arms (+ MELODY)
 
-PART BELOW: EQ IT BETTER
-
-coz it's the feeble tease of the moments
+it's the feeble tease of the moments
 dubious presents from murderous kind                            (marvellous kind)
 opened for voided that can't tell the difference
 i can't sense a thing when you fading the light 
@@ -65,7 +63,6 @@ making me die (DOWNWARDS MELODY)
 
 /// MAKE A BRIDGE
 
-ya ya ya
 out of my leauge
 out of my leauge
 out of my leauge
