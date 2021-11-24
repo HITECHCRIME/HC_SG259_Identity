@@ -37,31 +37,28 @@ it's the gentle breeze of anointment
 furious drizzle from treacherous minds
 content commotion i can't pay the obvious
 i can't figure out when you tellin me lies
-
 tellin' me lies
 
 it's a disguise forming around the identities
 splendid morbidity vibes within my entity
 roaming the mind, forging new paths
-for eternity dies folded inside my arms (DELETE MELODY FROM THIS PART)
-folded inside my arms (+ MELODY)
-folded inside my arms (+ MELODY)
+for eternity dies folded inside my arms
+folded inside my arms
+folded inside my arms
 
-it's the feeble tease of the moments
-dubious presents from murderous kind                            (marvellous kind)
-opened for voided that can't tell the difference
-i can't sense a thing when you fading the light 
-
-(REPEAT A FAST STEADY VERSE - REWORK BELOW 2 VERSES)
-opened for voided that can't tell the difference
+it's the feeble tease of the moment
+dubious present from murderous kind                          
+opened for voided i can't tell the difference
 i can't sense a thing when you fading the light 
 
 every time i count up to demise
-making me die, keeping me faint                                 / keeping my faith
+making me die, keeping it faint                                 / keeping my faith
 fading the light, dimming the light
 making me die (DOWNWARDS MELODY)
 
 /// MAKE A BRIDGE
+
+ey ey ey
 
 out of my leauge
 out of my leauge
