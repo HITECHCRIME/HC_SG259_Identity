@@ -157,6 +157,7 @@ TikTok Promos:
 
 Miscellaneous Promos:
 
+TOTAL RELEASE COST - 
 
 ## Music Video
 
