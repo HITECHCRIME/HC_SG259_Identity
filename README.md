@@ -141,6 +141,21 @@ when i tell you the lies
 
 **Themes:** ID motif. Identity, the id in psychology. Masks. Theatre of Sorrows. Mask of Existence. Human Fakeness. Tearing down the masks, both of the world around us and our own. Birthed anew. 
 
+## Release Costs
+
+Mix & Master: 360 PLN (Wodzu Beats)
+
+Spotify Playlists:
+
+Spotify Release: 
+
+Music Video:
+
+Insta Story Promos:
+
+TikTok Promos:
+
+Miscellaneous Promos:
 
 
 ## Music Video
