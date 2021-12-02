@@ -10,9 +10,9 @@ Hitech Crime single transmedia release from the Origin Timeline dealing with the
 
 > **Title:** Identity / **Featuring:** MOTHNODE, IMYRGOD
 
-> **Production:**  / **Lyrics:** MOTHNODE
+> **Production:** Wodzu Beats / **Lyrics:** MOTHNODE
 
-> **Beat:**
+> **Beat:** Yung Venxm
 
 > **Narrative Design:** MOTHNODE
 
